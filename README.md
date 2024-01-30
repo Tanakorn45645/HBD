@@ -1,3 +1,3 @@
 # HBD
-<img src =/ธรรมดาา.PNG><img src =/สี.PNG>
+<img src =/ธรรมดาา.jpg><img src =/สี.jpg>
  แนะนำตัว
